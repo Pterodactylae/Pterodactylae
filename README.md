@@ -11,5 +11,5 @@ is a ✨ _special_ ✨ species, appearing rarely in web environments.
 - 💬 Ask me about fantastic stuff; finance and empowerment.
 - 📫 How to reach me: leonie.schwitzkowski@dci-student.de
 - 😄 Pronouns: she/her; they/them
-- ⚡ Fun fact: A Shrimps heart is in its head. 
+- :fried_shrimp: Fun fact: A Shrimps heart is in its head. 
 
