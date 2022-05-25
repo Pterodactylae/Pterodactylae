@@ -7,7 +7,7 @@ is a ✨ _special_ ✨ species, appearing rarely in web environments
 
 - 🔭 I’m currently working on sitting still
 - 🌱 I’m currently learning about life, the universe and everything
-- 👯 I’m looking to collaborate on projects that make life easier
+- 👯 I’m looking to collaborate on projects that make life even nicer
 - 💬 Ask me about fantastic stuff; finance and empowerment
 - 📫 How to reach me: leonie.schwitzkowski@dci-student.de
 - :whale: Pronouns: she/her; they/them
